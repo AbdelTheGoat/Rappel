@@ -2,5 +2,5 @@
 
 # Je t’aime, je t’aime et je t’aime, évidemment le poème je le ferai tout seul avec l’aide de personne, sinon il n’y a aucun intérêt. Je suis prêt à tout pour toi.
 
-# Si un livre de 1 000 000 000 pages était dédié à toi, je m'engagerais à le parcourir dans son intégralité,
+# Si un livre de 1 000 000 000 pages était dédié à toi, je m'engagerais à le parcourir dans son intégralité. Mais ce serait impossible puisqu'il ne sera pas assez boutit et complet pour te decrire
 ![image](https://github.com/AbdelTheGoat/PHOTO/blob/main/Design%20sans%20titre.png?raw=true)
