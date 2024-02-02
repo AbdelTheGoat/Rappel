@@ -1,2 +1,1 @@
-# Fais attention surtout dans les transports, va dans rames les plus bondés, ne traine surtout pas. Rentre le plus vite possible. Shaima je t'aime de tout mon cœur!!!
-![image](https://github.com/AbdelTheGoat/PHOTO/blob/main/Design%20sans%20titre.png?raw=true)
+# Il fait froid et il y a un petit peu de pluie donc couvre-toi bien. Fais attention à toi, je t'aime fort et passe une bonne journée ma petite princesse d'amour!!!!
